@@ -1,2 +1,2 @@
-# hello-world
-first repo
+# First Editing
+This is a real nigger
